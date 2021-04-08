@@ -1,1 +1,1 @@
-# STROKE OF INSIGHT Registration
+# STROKE OF INSIGHT Registration : Chapter 4
